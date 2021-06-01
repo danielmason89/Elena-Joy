@@ -1,2 +1,2 @@
 # Elena-Joy
-A Photography Landing Page
+Elena Joy Photography, A photograph landing page
